@@ -1,0 +1,1 @@
+Both of us worked equally and did the assignment together via pair programming
